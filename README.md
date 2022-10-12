@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I hope you are well 👋
 
 My name is **Kelly Hantan** (call me Sixfried). I'm just a 19 yo Physics Student passionate about Video Games. So...
 
